@@ -1,2 +1,2 @@
 # songmiyoung-arrrt.github.io
-브랜드 사이트
+일러스트레이터 송미영의 사이트 제작
